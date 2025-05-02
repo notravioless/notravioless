@@ -1,13 +1,8 @@
-- ╭────┈ •°•↷
-│ ✎┊ ABOUT ME
-│╭─────────────╯
-││• my name is notravioles.
-││• my pronouns are she/her
-││• im currently learning abt webs and unreal.
-││• how to reach me: dunot reach me.
-││• fun fact: when i was a child i wanted to be a game dev abt animal jam so here am i.
-││age: **
-│╰─────────── · · · · ✦
+˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
+ˋ°•*⁀➷ call me joha.
+ˋ°•*⁀➷ she/her
+ˋ°•*⁀➷ learning abt webs and unreal
+ˋ°•*⁀➷ dont mind me
 
 
 <!---
